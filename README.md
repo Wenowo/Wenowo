@@ -1,4 +1,5 @@
-## Hi there 👋
+## Sup ! 🤯
+----Just a teenage programmer and artist•°
 
 <!--
 **Wenowo/Wenowo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
