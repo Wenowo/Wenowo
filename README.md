@@ -18,4 +18,10 @@
 
 ---> I'm very interested in other cultures, I love meeting and having foreign friends, I'd love to know about your countries.
 
+°•FANDOMS:
+
+---> MAIN: tlou, rdr2, mass effect, minecraft ARGs, mlp,..
+
+---> OTHER: tadc, fallout, demon slayer,...
+
 ## ‼️ unfinished! I'm working on this trust
