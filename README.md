@@ -10,7 +10,7 @@
 
 °•[INTERESTS] :
 
----> I'm in LOVE with any story type of media. Movies, shows, but especially games. I think I've played every single story driven game atp. (I'm also working on my own story game!)
+---> I'm in LOVE with any story type of media. Movies, shows, comics, but especially games. I think I've played every single story driven game atp. (I'm also working on my own story game!)
 
 ---> My favourite genres are horror, thriller and mystery.
 
@@ -22,7 +22,7 @@
 
 °•FANDOMS:
 
----> MAIN: tlou, rdr2, mass effect, minecraft ARGs, mlp,..
+---> MAIN: tlou, rdr2, mass effect, assasin's creed, minecraft ARGs, mlp, visual novels...
 
 ---> OTHER: tadc, fallout, demon slayer,...
 
