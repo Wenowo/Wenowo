@@ -16,9 +16,9 @@
 
 ---> I like to draw and paint, but I suck at digital 💔
 
----> I'm very interested in other cultures, I love meeting and having foreign friends, I'd love to know about your countries.
+---> I'm very interested in other cultures, I love meeting and having foreign friends, I'd love to know about your cultures.
 
----> I love dropping random facts about anything out of nowhere,, It's a bad habit😭
+---> I sometimes yap a lot and love dropping random facts about anything out of nowhere,, It's a bad habit😭
 
 °•FANDOMS:
 
