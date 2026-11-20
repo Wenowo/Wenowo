@@ -9,7 +9,7 @@
 
 ---> I'm in LOVE with any story type of media. Movies, shows, comics, but especially games. I think I've played every single story driven game atp. (I'm also working on my own story game!)
 
----> My favourite genres are horror, thriller and mystery.
+---> My favourite genres are horror, thriller and fantasy, sci - fi
 
 ---> I like to draw and paint, but I suck at digital 💔
 
